@@ -1,7 +1,7 @@
 # Algorithms Course Code "Shadow Coding on youtube"
 
-## hey there.🙋‍♂️
+## Hey there.🙋‍♂️
 
-### all code for you. ❤️
+### All code for you. ❤️
 
-### don't forget star ⭐
+### Don't forget star ⭐
